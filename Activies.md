@@ -21,5 +21,15 @@ Just imagine, a warm summer night gathered around the camp fire with friends, fi
 <br>
 <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS3kKgeVwsHbLsHc5E3hmIDnMuL-Ml_AD4JEg&usqp=CAU" align="left"/>
 
-The [Hermann Wine Trail](https://hermannwinetrail.com) is something me and my boyfriend love to do whenever we get the chance. The photo here to the left is [Hermannhof Winery](https://www.hermannhof.com) in Hermann, MO. This is one of our favorite winerys to visit when we go to Hermann, they have this really cool underground celler that dates back to 1852 were they have a little tasting area were you can see some of the historic wine casks. Now the full extent of the celler isn't available to the public, but you can see a great deal of it. 
+The [Hermann Wine Trail](https://hermannwinetrail.com) is something me and my boyfriend love to do whenever we get the chance. The photo here to the left is [Hermannhof Winery](https://www.hermannhof.com) in Hermann, MO. This is one of our favorite winerys to visit when we go to Hermann, they have this really cool underground celler that dates back to 1852 were they have a little tasting area were you can see some of the historic wine casks. Now the full extent of the celler isn't available to the public, but you can see a great deal of it. There are several different wine trails though out the year and all are a bit different though they go through the same winerys. The main difference is the food they pair with the wines. Each even has a common theme of what each winery pairs with their wines. The last one we went on in December of 2021 was the "Say cheese wine trail" where each winery paired their wine with a cheese realted dish.
+
+### **Winery's involved with the wine trail**
+- [Adam Puchta Winery](https://adampuchtawine.com)
+- [Curling Vine Winery](http://www.curlingvinewinery.com)
+- [Dierberg Star Lane](https://www.hermannhof.com/tasting-room)
+- [G. Husmann Wine Company](https://www.ghusmannwine.com)
+- [Hermannhof Winery](https://www.hermannhof.com)
+- [Röbller Winery](https://www.robllerwines.com)
+
+
 
