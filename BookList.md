@@ -20,5 +20,30 @@ As a Millennial book nerd it kind of goes without saying that I am a big _Harry 
 <br>
 <img src="https://images-na.ssl-images-amazon.com/images/I/81dM5-PSE3L.jpg" align="left" width="200"/>
 
-The [_Mistborn Series_](https://en.wikipedia.org/wiki/Mistborn) is a new one for me(image on the left). At the  suggestion of my boyfirend(who is more of a book nerd then me) I started listening to this trilogy on audible while at work when we first started dating. It is an epic fantasy series that has one of the best hard magic systems in it. It is an amazing story about the fate of the world, who has the power to change it and  apocalypse size chaos. For mor detail one it please see the link above. Brandon Sanderson is one of my newest favorite authors(though hes been at it for 20+ years). He is a fantastic story teller and his worlds just capture you. Right now I'm in the first few chapters of his 4th book in the [The Stormlight Archive](https://en.wikipedia.org/wiki/The_Stormlight_Archive) series. His books are very detail oriented and extreamly well writen. 
+The [_Mistborn Series_](https://en.wikipedia.org/wiki/Mistborn) is a new one for me(image on the left). At the  suggestion of my boyfirend(who is more of a book nerd then me) I started listening to this trilogy on audible while at work when we first started dating. It is an epic fantasy series that has one of the best hard magic systems in it. It is an amazing story about the fate of the world, who has the power to change it and  apocalypse size chaos. For mor detail one it please see the link above. Brandon Sanderson is one of my newest favorite authors(though hes been at it for 20+ years). He is a fantastic story teller and his worlds just capture you. Right now I'm in the first few chapters of his 4th book in the [The Stormlight Archive](https://en.wikipedia.org/wiki/The_Stormlight_Archive) series. His books are very detail oriented and extreamly well writen. Brandon Sanderson's newest revail is that he jsut revaild that he, in secret, wrote five books in the last 2 years. Four of those books are full novels and the fifth is problaby going to be turned into a grafic novel. This has been a major shock to authors and fans since generaly it takes authors a year or more to just finish one book, with some authors taking several years! He is a talented author and a staple of the fantisy book community.
+
+## **Other Author's and Books I like**
+
+These are obviously not all of the mooks I've read but these are  several more books and Series I love but and those listed here my top fravorites.
+<br>
+
+[Sarah J. Maas](https://sarahjmaas.com)
+- _The Trone of Glass Series_
+- _The Court of Thorns and Roses Series_
+
+[Nora Roberts](https://noraroberts.com/2017/12/year-one/) is has a bunch of books out and I plan on reading more of them but this is the one I have read and really enjoyed.
+- _Year One Series_
+
+[Taran Matharu](https://us.macmillan.com/author/taranmatharu) also has a few different series out but this is the only one I'v gotten to.
+- _The Summoner Series_
+
+[Cinda Williams Chima](https://www.cindachima.com)
+- _The Heir Series_
+- _The Seven Reamls Series_
+- _The Shattered Realms Series_
+
+[Cassandra Clare](https://shadowhunters.com/shadowhunters-novels/)
+- _The Mortal Instruments Series_
+- _The Infernal Devces Series_
+- _The Dark Artifices Series_
 
