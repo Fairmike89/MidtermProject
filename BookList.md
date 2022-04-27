@@ -31,7 +31,7 @@ These are obviously not all of the mooks I've read but these are  several more b
 - _The Trone of Glass Series_
 - _The Court of Thorns and Roses Series_
 
-[Nora Roberts](https://noraroberts.com/2017/12/year-one/) is has a bunch of books out and I plan on reading more of them but this is the one I have read and really enjoyed.
+[Nora Roberts](https://noraroberts.com/2017/12/year-one/) has a bunch of books out and I plan on reading more of them but this is the one I have read and really enjoyed.
 - _Year One Series_
 
 [Taran Matharu](https://us.macmillan.com/author/taranmatharu) also has a few different series out but this is the only one I'v gotten to.
